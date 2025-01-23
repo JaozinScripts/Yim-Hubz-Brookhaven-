@@ -1,2 +1,1 @@
-# Yim-Hubz-Brookhaven-
-Qualquer coisa aqui escreve!
+apaga todo que vai aparecer aqui. e coloca o obf
